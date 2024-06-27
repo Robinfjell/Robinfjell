@@ -6,7 +6,7 @@
 
 💞️ I’m eager to collaborate on innovative web projects that not only showcase my abilities but also challenge me to think creatively and problem-solve effectively. I believe collaboration is key to producing impactful solutions that resonate with users and drive meaningful engagement.
 
-📫 You can reach me via email at your-email@example.com. Feel free to connect with me for discussions on web development trends, project ideas, or potential collaborations.
+📫 You can reach me via email at rg5632256@gmail.com. Feel free to connect with me for discussions on web development trends, project ideas, or potential collaborations.
 
 😄 Pronouns: He/Him. As someone committed to creating inclusive and supportive environments, I respect and value diversity in all forms.
 
